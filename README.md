@@ -1,1 +1,24 @@
 # Why-Do-Teens-Use-Drugs-Reasons-To-Consider
+The teenage years can be when irrational, impulsive decisions are made. Living in the moment without taking into account potential consequences is possible at this time. It is therefore a time when many teenagers experiment with drugs and alcohol for the first time. <br>
+
+Teenagers are under constant pressure to maintain good grades, participate in extracurricular activities, prepare for college, have a social life, and decide what they want to do with the rest of their lives once they start high school. Apart from the normal stresses and problems of adolescence, it is not unusual for kids to experience bullying/ cyberbullying, intense pressure from their parents or academic counselors, and the onset of mental health problems. <br>
+
+Why Teens Use Or Misuse Drugs<br>
+
+Several factors may influence teenage drug addiction and abuse. With readily available substances like alcohol and cigarettes, first-time usage frequently happens in social situations.<br>
+
+Other People: Teenagers observe a large number of people consuming a variety of substances. They watch their parents and other adults consume alcohol, smoke or vape, and occasionally experiment with different drugs. Also, drinking and marijuana use are common social activities for teenagers. Although friends may occasionally encourage one another to consume alcohol or smoke marijuana, it is also usual for teenagers to experiment with drugs simply because they can easily access them and observe their peers doing it. They view drug use as a typical aspect of adolescence leading to  teen alcohol abuse.<br>
+
+Self-Medication & Escape: It's not unusual for mental health symptoms to start showing up while a person is a teenager. Teenagers mostly start using drugs or alcohol to lessen or "numb out" the symptoms of sadness, anxiety, or other mental health conditions. Insecurities or a desire for social acceptance may cause ongoing teen alcohol abuse. Teenagers who take unsafe drug risks may believe they are unbreakable and fail to consider the repercussions of their choices.<br>
+
+To feel good: Many teenagers misuse alcohol or drugs to get high. They are searching for an exhilarating feeling that they can't get through indulgences like food or exercise. The addictive cycle begins to take hold at this point. Drugs impact how our bodies and minds feel and generate pleasure. When someone uses drugs, their brain produces up to ten times as much dopamine and euphoria as they normally would. Although the chemistry involved is abnormal, our brain nevertheless remembers it. It longs for it, making it difficult for overcoming drug addiction among teens.<br>
+
+Rebellion: Based on their personality, various rebellious teenagers use different drugs. The drug of choice for furious teenagers is alcohol because it gives them the freedom to act violently. Some adolescent users abuse prescription drugs to have fun and get euphoric. Young people who feel misunderstood and desire to escape to a more idealistic, loving world frequently take hallucinogens, also considered escape drugs. Smoking can be a gesture of defiance used by children to show their independence and enrage their parents, as complex as teenagers themselves are the causes of teen drug addiction.<br>
+
+Attention: Teenagers frequently feel unmotivated or untalented. They believe they are not special enough to stand out or that they lack something necessary to do so. These emotions might encourage people to take drugs. Some young people do not know how to improve themselves, so they become the worst version of themselves to capture their parents' and teachers' full attention.<br>
+
+Addiction: Some adolescents and young adults are caught in the cycle of addiction. They are more prone to being dependent and addicted because of their young age. They become in over their heads and lack the skills to escape at a young age. Thus, they need help <a href="https://tooshytoask.org/help/personal-safety/addiction-recovery/">overcoming drug addiction among teens</a>.<br>
+
+Competition: Teenagers and young adults are under a lot of pressure to perform well, to please others, and to make themselves proud. Young people constantly desire to demonstrate their superiority to their peers and parents, whether it is in classroom or on the field. However, there might be much pressure to excel. For instance, teens and young adults frequently misuse prescription stimulants as "smart drugs" or study aids to enhance academic performance. <br>
+
+Misinformation: Inaccurate information regarding drugs and alcohol is undoubtedly the most preventable cause of substance use. Most teenagers have peers who claim to be experts on a variety of recreational drugs, and they are ready to reassure them that the risks are negligible. Teach your teenagers about drug usage to understand the risks involved.<br>
